@@ -1,1 +1,2 @@
-# pietrzakokowski_
+Paulina Pietrzak 
+Aleksander Kokowski
